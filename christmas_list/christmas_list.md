@@ -8,4 +8,4 @@
 - [Basil Urban Dry](https://www.basil.com/en/urban-dry-shopper-dark-grey.html) (big panier bag for the other side of my bike to put my shopping in)![Panier bag](images/panier_bag.png)
 - Maybe some way to attach my lock and or water bottle to my bike so they don't take up bag space and can be accessed quickly
 ## Kitchen Stuff
-- 4 cup teapot and milk jug (I think mum wanted to give me the blue one that I liked)
+- 4 cup teapot and milk jug
